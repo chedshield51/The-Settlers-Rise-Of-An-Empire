@@ -210,4 +210,4 @@ The Settlers: Rise of an Empire is available as a full free version with all fea
 Start your journey today and download The Settlers: Rise of an Empire for an epic strategy experience!
 
 ---
-**Last updated:** 2026-10-21 01:15:40 UTC
+**Last updated:** 2026-10-21 07:01:45 UTC
